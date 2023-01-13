@@ -1,2 +1,1 @@
-# inibuatroot
-gabut
+# TEORI AKAR
